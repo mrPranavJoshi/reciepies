@@ -1,1 +1,0 @@
-aalu lo pyaz lo or khajao
